@@ -2,4 +2,4 @@
 
   ㅤ   ㅤ*the world is a better place without me,ㅤㅤㅤㅤㅤㅤ that's why i kept on living!*
  
-ㅤㅤㅤ[*my rentry*](https://rentry.org/rosesforyourradio)ㅤㅤㅤㅤ[my strawpage](https://neverloveanarcissist.straw.page)
+ㅤㅤㅤ[*my rentry*](https://rentry.org/rosesforyourradio)ㅤㅤㅤㅤ[my al themed strawpage](https://neverloveanarcissist.straw.page) ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[my other strawpage^_^](https://lalalalala-lalalalala.straw.page)
